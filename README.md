@@ -18,8 +18,6 @@ Here are some ideas to get you started:
 
 𝗜'𝗺 Adrian Oliva！𝗜'𝗺 𝗮 𝘀𝗼𝗳𝘁𝘄𝗮𝗿𝗲 𝗲𝗻𝗴𝗶𝗻𝗲𝗲𝗿 👨‍💻 𝘄𝗵𝗼 𝗶𝘀 𝗽𝗮𝘀𝘀𝗶𝗼𝗻𝗮𝘁𝗲 𝗮𝗯𝗼𝘂𝘁 𝗼𝗽𝗲𝗻 𝘀𝗼𝘂𝗿𝗰𝗲 𝗮𝗻𝗱 𝗯𝗼𝗼k𝘀.
 
-Age Focus Living Job
-
 🧐 About
 👀 I’m interested in increse my seniority level and programming skills , data , web development full stack
 
